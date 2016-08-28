@@ -1,0 +1,1 @@
+Hat Type: Cowboy Hat
